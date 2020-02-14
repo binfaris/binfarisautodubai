@@ -1,0 +1,2 @@
+# binfarisautodubai
+Bin Faris is known to be an outstanding car maintenance workshop in Dubai that offers the best car polish in Dubai. We are also known to be the best car wash and car detailing workshop in Dubai. Our experienced and knowledgeable staff caters to all the requirements of the customers. Over the years, we have gained popularity as the best interior repair for car workshop in Dubai. For more details, contact us +971 52 982 6288
